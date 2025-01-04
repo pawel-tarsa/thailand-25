@@ -1,4 +1,3 @@
-# thailand-25
 # 🌴 9-Dniowy Plan Podróży po Krabi, Tajlandia 🌏
 
 **Cel podróży:**  
